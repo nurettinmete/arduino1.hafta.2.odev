@@ -1,1 +1,2 @@
-# arduino1.hafta.2.odev
+# Nurettin Mete BAYINDIR
+Tüm hakları saklıdır.©
